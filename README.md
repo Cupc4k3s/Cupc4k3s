@@ -11,7 +11,7 @@ $${\color{#ff57b3}SPAM\ FOLLOW,\ FOLLOW\ MAIN(S)}$$
 
 $${\color{#bbeffe}vˊㅅ`v𓏼}$$
 
-$${\color{#ff57b3}PINKIE PIE❤︎︪𓏼 }$$ $${\color{#48b2cc}RAINBOW DASH❤︎︪𓏼 }$$ $${\color{#48b2cc}4\ EVVAH\ !}$$
+$${\color{#ff57b3}PINKIE PIE❤︎︪𓏼 }$$ $${\color{#48b2cc}RAINBOW DASH❤︎︪𓏼 }$$ $${\color{#ffffff}4\ EVVAH\ !}$$
 
 
 
