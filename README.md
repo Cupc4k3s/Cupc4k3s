@@ -6,11 +6,11 @@
  </div>
 
 
-$${\color{#ec9c9d}nekopara　fans 　\ DNI}$$
+$${\color{#c96ecf}nekopara　fans 　\ DNI}$$
 
-$${\color{#f2cfcb}vˊㅅ`v𓏼}$$
+$${\color{#fff0b9}vˊㅅ`v𓏼}$$
 
-$${\color{#774624}THEE　 COCONUT 　❤︎︪𓏼 }$$ 
+$${\color{#e8c288}THEE　 COCONUT 　❤︎︪𓏼 }$$ 
 
 
 
