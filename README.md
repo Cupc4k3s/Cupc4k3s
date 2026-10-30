@@ -1,7 +1,7 @@
 
 
-　$${\color{#c96ecf}its 　 " best veiwed"　  in 　 'dark mode'}$$
-
+　　　　　　　　　　its 　 " best veiwed"　  in 　 'dark mode'
+------------------------------
 <div align="Center"> <img width="648" height="599" alt="2026_10_30_059_Kleki_compressed" src="https://github.com/user-attachments/assets/5f1ec5a4-3001-4ddb-bd38-cfb178a4bea2" /></div>
 
 
