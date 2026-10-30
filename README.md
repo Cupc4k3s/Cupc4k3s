@@ -1,9 +1,8 @@
 
 
-　
+　$${\color{#fff0b9} " best veiwed in 'dark mode' .}$$
 
-<div align="Center">  <img width="632" height="680" alt="tumblr_ab6d9f406f9a581512327f013b482a6b_eb9a8957_1280" src="https://github.com/user-attachments/assets/83a48efb-b9dd-4321-b76f-52771baf1673" />
- </div>
+<div align="Center"> <img width="648" height="599" alt="2026_10_30_059_Kleki_compressed" src="https://github.com/user-attachments/assets/5f1ec5a4-3001-4ddb-bd38-cfb178a4bea2" /></div>
 
 
 $${\color{#c96ecf}nekopara　fans 　\ DNI}$$
@@ -13,4 +12,5 @@ $${\color{#fff0b9}vˊㅅ`v𓏼}$$
 $${\color{#e8c288}THEE　 COCONUT 　❤︎︪𓏼 }$$ 
 
 
+<div align="Center"> <img width="648" height="599" alt="2026_10_30_05a_Kleki_compressed" src="https://github.com/user-attachments/assets/1877d57b-1b85-4fab-a9b8-ee4ccead4872" /></div>
 
